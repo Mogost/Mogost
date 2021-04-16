@@ -1,2 +1,2 @@
 # Alexandr Artemyev (Mogost)
-😏💻
+😏 💻
